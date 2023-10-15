@@ -1,3 +1,3 @@
 # Practice  
 
-  Description of project. It's cool huh
+  Description of project. It's, cool huh!
